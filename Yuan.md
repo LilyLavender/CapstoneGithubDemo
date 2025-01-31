@@ -1,4 +1,4 @@
-Yuan Gao's Profile
+Yuan Gao
 About Me
 I'm Yuan Gao, a person who enjoys maintaining an active and balanced lifestyle through various activities.
 My Interests

@@ -17,7 +17,7 @@ Building endurance
 Maintaining overall health
 Setting and achieving fitness goals
 
-🏀 Basketball
+🏀 Basketball :)
 Basketball is more than just a sport for me - it's a way to:
 
 Stay active and improve coordination
